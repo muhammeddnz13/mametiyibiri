@@ -1,0 +1,2 @@
+# mametiyibiri
+Yok
